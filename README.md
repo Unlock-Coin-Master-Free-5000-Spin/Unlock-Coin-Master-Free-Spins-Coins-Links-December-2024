@@ -2,7 +2,7 @@
 
 Coin Master has taken the mobile gaming world by storm, offering an exciting blend of slot machine mechanics, building, and raid-style gameplay. As of December 2024, players are continuing to enjoy the thrills of this unique mobile experience, and one of the most enticing ways to boost your progress in the game is by unlocking free spins and coins. These resources can help you build your village, attack other players' villages, and spin the wheel to earn rewards, without spending any real money. If you're looking for ways to speed up your game and gain an advantage, you're in the right place!
 
-### [👉CLICK HERE TO GET NOW FREE](https://jackmarkjr.github.io/spins/)
+### [👉CLICK HERE TO GET NOW FREE👈](https://freeforyou.xyz/cms/)
 
 In this article, we’ll explore how you can unlock free spins and coins, along with some valuable tips on how to make the most of these offers. Whether you’re a seasoned Coin Master player or new to the game, this guide will give you the edge you need to enhance your gaming experience.
 
